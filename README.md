@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning html, css and python.
 - 💞️ I’m looking to collaborate on learning any skills that help me get jobs!
 - 📫 How to reach me - gaiusraeljsison@gmail.com
-- 😄 Pronouns: ..Make that/ Money.
+- 😄 Pronouns: ..Power / Money.
 - ⚡ Fun fact: I used to teach different skills to different people for different outcomes - some for joy and some for fear.
 
 <!---
